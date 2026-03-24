@@ -1,0 +1,2 @@
+# belajarransomware
+Tes doang
